@@ -1,2 +1,0 @@
-# mundopelicula
-historia de silencio
